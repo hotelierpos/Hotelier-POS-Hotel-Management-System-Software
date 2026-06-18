@@ -5,7 +5,9 @@ Designed for hotels, guest houses, resorts, and hospitality businesses.
 For inquiries, demo, or purchase:
 
 ✔ Windows Application Available
+
 ✔ Source Code Available 
+
 Contact on Whatsapp: https://wa.link/zcu3c5
 
 
