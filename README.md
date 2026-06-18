@@ -3,7 +3,8 @@ Hotelier POS is essential POS software hotel businesses use to run day-to-day op
 Designed for hotels, guest houses, resorts, and hospitality businesses.
 
 For inquiries, demo, or purchase:
-✔ Windows Application Version Available
+
+✔ Windows Application Available
 ✔ Source Code Available 
 Contact on Whatsapp: https://wa.link/zcu3c5
 
